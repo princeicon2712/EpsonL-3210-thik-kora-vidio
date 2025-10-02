@@ -12,3 +12,15 @@ https://www.youtube.com/watch?si=XEuH4d7oz-b9Wg1v&v=JEztwtAQDDQ&feature=youtu.be
 ## Epson l3210 হ্যাড পরিস্কার
 
 https://youtu.be/1GUkdI39ngY?si=_-LKaedv7Q17a3Y3
+
+## পাম্প ইউনিট নতুন লাগানো [ পেপার আটকাইলে]
+https://youtu.be/a3ZsD7gqNKY?si=w3Iep3QvSjMLgjjO
+
+## সেনসর জনিত সমস্যা [ লাল/বাতি জ্বলেই পরিস্কার করতে হবে অব্যশই]
+incoder dix 
+scal cr পরিস্কার করতে হবে।
+
+https://youtu.be/vRk5maVrgfI?si=yoaYf_E6GsLo0edj
+
+## সেনসর বোর্ড পরি বর্তন
+https://youtu.be/bWxpIIePuas?si=SpYw5SM21WpBXRB6
