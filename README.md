@@ -28,6 +28,10 @@ scal cr পরিস্কার করতে হবে।
 
 https://youtu.be/vRk5maVrgfI?si=yoaYf_E6GsLo0edj
 
+## সেনসর পরিস্কার ১০০%
+
+https://youtu.be/8BM_BQxtxek?si=lbMNA8sNbto3vQ3c
+
 ## সেনসর বোর্ড পরি বর্তন
 https://youtu.be/bWxpIIePuas?si=SpYw5SM21WpBXRB6
 
