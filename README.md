@@ -4,7 +4,9 @@
 
 https://youtu.be/gMs9NVlPrJo?si=-tBDBteaAao3QYXc
 
-## restoe amd service problem pixed
+## restoe and [ service problem pixed ]
+
+west in pad counter ক্লিক করতে হবে। 
 
 https://www.youtube.com/watch?si=XEuH4d7oz-b9Wg1v&v=JEztwtAQDDQ&feature=youtu.be
 
@@ -28,3 +30,5 @@ https://youtu.be/vRk5maVrgfI?si=yoaYf_E6GsLo0edj
 
 ## সেনসর বোর্ড পরি বর্তন
 https://youtu.be/bWxpIIePuas?si=SpYw5SM21WpBXRB6
+
+
