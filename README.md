@@ -35,4 +35,8 @@ https://youtu.be/8BM_BQxtxek?si=lbMNA8sNbto3vQ3c
 ## সেনসর বোর্ড পরি বর্তন
 https://youtu.be/bWxpIIePuas?si=SpYw5SM21WpBXRB6
 
+## পেপার আটকাইলে Sifte Roller পরিবর্তন করতে হয়।
+
+https://youtu.be/DhBKOQrCm_I?si=Ofy-jLpW8rcFrEMi
+
 
