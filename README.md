@@ -16,6 +16,10 @@ https://youtu.be/1GUkdI39ngY?si=_-LKaedv7Q17a3Y3
 ## পাম্প ইউনিট নতুন লাগানো [ পেপার আটকাইলে]
 https://youtu.be/a3ZsD7gqNKY?si=w3Iep3QvSjMLgjjO
 
+## পাম্প ওয়াস করে [ ছবি ক্লিয়ার করে ]
+
+https://youtu.be/WfCFQS8xuIM?si=73lsMhOq1XAnan-o
+
 ## সেনসর জনিত সমস্যা [ লাল/বাতি জ্বলেই পরিস্কার করতে হবে অব্যশই]
 incoder dix 
 scal cr পরিস্কার করতে হবে।
